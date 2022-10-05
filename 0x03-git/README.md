@@ -1,1 +1,1 @@
-my second day coding
+Starting to code today, so cool
